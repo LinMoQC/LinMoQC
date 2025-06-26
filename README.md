@@ -12,7 +12,7 @@
   _From November 2024 to March 2025_
 
 - **[Tencent](https://www.tencent.com/)** - **TEG Department**  
-  _From November 2025 to present_
+  _From March 2025 to present_
 
 ---
 
